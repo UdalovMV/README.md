@@ -1,1 +1,1 @@
-# README.md
+https://UdalovMV.github.io/rsschool-cv/
